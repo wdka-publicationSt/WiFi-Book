@@ -53,6 +53,7 @@ monteren zoals de tegenstanders uit Akte II het oorspronkelijk hadden
 gedrappeerd.  Voorzover mogelijk
 stel ik voor de rollen waarmogelijk door de volgende personen te laten
 vertolken.
+
 * de meteoriet F. Sinatra
 * de aarde C. Elliot
 * de wetenschappers Prof. T. Zonnebloem & Dr. Dre
